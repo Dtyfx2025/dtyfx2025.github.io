@@ -1,4 +1,4 @@
-# wadani_fx.github.io
+# dtyfx2024.github.io
 
 *Forex 2025*  
 Haddii aad rabto inaad barato suuqyada Forex-ka si xirfad leh oo casri ah, waxaad joogtaa meeshii saxda ahayd!  
